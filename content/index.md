@@ -12,7 +12,7 @@ Du har fundet vej til Jacobs noter. Brug menuen eller kortet for at navigere run
 
 
 ## Færdige
-- [[2026 kredsmand]]
+- [[2026 kredsstævne]]
 ## Kontakt
 
 jacob punktum dianalund at gmail punktum com
