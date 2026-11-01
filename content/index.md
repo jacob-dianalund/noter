@@ -11,6 +11,8 @@ Du har fundet vej til Jacobs noter. Brug menuen eller kortet for at navigere run
 ## Planlagt
 
 
+## Færdige
+- [[2026 kredsmand]]
 ## Kontakt
 
 jacob punktum dianalund at gmail punktum com
